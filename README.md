@@ -1,1 +1,1 @@
-Integrantes do Grupo: Augusto Dalpra Raphael Ribeiro
+Integrantes do Grupo: Augusto Dalpra e Raphael Ribeiro
